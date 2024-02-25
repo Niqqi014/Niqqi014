@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Niqqi014 or NIKITA
+- 👀 I’m interested in coding,making projects,reading fantasy stories,learning facts about universe and trying new things.
+- 🌱 I’m currently learning various python modules and DSA.
+- 💞️ I’m looking to collaborate on various projects if you like, for hacksthons, coding comptition, etc.
+- 📫 How to reach me you can text me on my linkedIn account or on my Whatsapp.
+- 😄 Pronouns: SHE/HER(obviously cause I'm a female.)
+- ⚡ Fun fact: I'm still new yet I have worked on many projects.>U< I am also big fan of ANIME and MANGAS/MANHWAS.
